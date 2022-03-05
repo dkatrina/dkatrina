@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am currently a Master of Arts candidate at Columbia University's Quantitative Methods in the Social Sciences program. I graduated from Baruch College in 2020 with a Bachelor of Business Administration in Finance.
+I am currently a Master of Arts candidate at Columbia University's Quantitative Methods in the Social Sciences program. My research interest encompass the intersection between healthcare and education within the United States. I graduated from Baruch College in 2020 with a Bachelor of Business Administration in Finance.
 
 I work as a Graduate Intern for the Institute of Human Nutrition at Columbia University Irving Medical Center, providing assistance with alumni and prospective student relations. 
 
